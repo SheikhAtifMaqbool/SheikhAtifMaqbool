@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @SheikhAtifMaqbool
+- 👋 Hi, I’m @AtifMaqbool
 - 👀 I’m interested in politics, history, geography, tech education
 - 🌱 I’m currently learning tech education
 - 💞️ I’m looking to collaborate on 
